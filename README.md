@@ -20,7 +20,7 @@
 
 <p style="text-align: justify;"><strong>Buy Microsoft AZ-700 Exam Questions With 25% Discount - <a href="https://www.justcerts.com/microsoft/az-700-practice-questions.html">https://www.justcerts.com/microsoft/az-700-practice-questions.html</a></strong></p>
 
-<center><img alt="MicrosoftAZ-700 Exam Dumps" src="https://media.licdn.com/dms/image/D4D12AQEVHJj-QdVG2g/article-cover_image-shrink_600_2000/0/1678087447052?e=2147483647&v=beta&t=ppQDKJxDo4cyI7tPocshvUw4n40MuMqVprGjdDn2f6U" style="height: 675px; width: 1200px;" /></center>
+<center><img alt="MicrosoftAZ-700 Exam Dumps" src="https://media.licdn.com/dms/image/D4D12AQEVHJj-QdVG2g/article-cover_image-shrink_600_2000/0/1678087447052?e=2147483647&v=beta&t=ppQDKJxDo4cyI7tPocshvUw4n40MuMqVprGjdDn2f6U" style="height: 563px; width: 1000px;" /></center>
 
 <h3><strong>Microsoft AZ-700 Learning Material in 3 Different Formats</strong></h3>
 
